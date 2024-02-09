@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning software engineering
 - 💞️ I’m looking to collaborate on projects worlwide
 - 📫 How to reach me @ gialex318@gmail.com / +254797717269 / +254742207269
-- 😄 Pronouns: ...
+- 😄 Pronouns: 
 - ⚡ Fun fact:
 
 <!---
